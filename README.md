@@ -11,4 +11,4 @@
 - [Comptia A+](https://imgur.com/a/KT7yNHx)
 <h2> 🤳 Connect with me:</h2>
 
-[Linkedin](https://www.linkedin.com/in/iliya-kurylenko/)
+[Linkedin](https://www.linkedin.com/in/iliya-kurylenko-45a788319/)
