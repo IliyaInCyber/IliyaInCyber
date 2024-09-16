@@ -1,4 +1,4 @@
-<h1>Hi, I'm Iliya! Cybersecurity Professional 
+<h1>Hi, I'm Iliya! Aspiring I.T Professional
 
 <h2>👨‍💻 My Projects:</h2>
 
